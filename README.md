@@ -1,5 +1,8 @@
 ### Я В ПОЕЗДЕ! 👋
 
+![image](https://user-images.githubusercontent.com/93781404/140532762-9dd02d8e-423a-4058-97a4-7e010dbd1cf3.png)
+
+
 ![image](https://user-images.githubusercontent.com/93781404/140532011-20f62677-2c9c-4adf-bfc6-6b74c4380aec.png)
 
 
